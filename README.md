@@ -7,6 +7,7 @@ I’m **Abeeha I.**, a professional **Graphic Designer** and **Amazon KDP Expert
 I also specialize in **technical content writing** covering Cloud Computing, Cybersecurity, DevOps, AI, and Networking.
 
 ---
+I bring a diverse skill set that blends creativity, technical expertise, and publishing knowledge, allowing me to deliver versatile solutions for clients across different industries. My graphic design skills include creating visually compelling book covers, designing infographics, building intuitive UI/UX prototypes, and producing brand-focused assets using tools such as Adobe Photoshop, Illustrator, Canva, and Figma. I have extensive experience with Amazon KDP publishing, where I handle the complete publishing lifecycl, from manuscript formatting and interior layout design to cover creation that meets Amazon’s requirements and the development of A+ content that boosts visibility and conversions. Alongside design, I specialize in technical writing, producing detailed study guides, certification materials, tutorials, flashcards, eBooks, and blogs on key domains like Cloud Computing, Cybersecurity, DevOps, Networking, and Artificial Intelligence. This unique combination of visual creativity and technical communication enables me to deliver impactful, end-to-end solutions tailored to meet client needs.
 
 ## 🚀 What I Do
 - 🎨 **Graphic Design** – Book Covers, Infographics, UI/UX
